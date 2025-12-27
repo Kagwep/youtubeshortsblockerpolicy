@@ -1,3 +1,5 @@
+
+
 # Privacy Policy for YouTube Shorts Blocker
 
 **Last updated:** December 28, 2025
